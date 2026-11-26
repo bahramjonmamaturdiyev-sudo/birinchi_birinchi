@@ -1,1 +1,1 @@
-Salom,ozgarishlarni uqi
+Salom,o'zgarishlarni o'qi
